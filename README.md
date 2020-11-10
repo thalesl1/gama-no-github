@@ -1,0 +1,1 @@
+O curso gama está sendo bem interessante devido aos novos conceitos e aprendizados que estou adquirindo, estou muito empolgado em aprender essa nova aréa que é a programação, já que é algo bem distindo do meu curso superior em Engenharia Civil.
